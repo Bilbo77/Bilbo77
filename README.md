@@ -2,7 +2,7 @@
 >
 >Reinventing myself. Future passionate about the world of programming. Looking forward to being part of a great team and carrying out huge projects. 
 >
----
+
 <br>
 
 
